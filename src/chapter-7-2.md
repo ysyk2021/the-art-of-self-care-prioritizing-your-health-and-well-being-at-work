@@ -1,5 +1,3 @@
-Creating a supportive and inclusive workplace culture
-==========================================================================================================================
 
 Mental health is a critical aspect of overall well-being, and it's essential to create a supportive and inclusive workplace culture that prioritizes mental health and well-being. In this chapter, we'll explore strategies for supporting mental health and well-being in the workplace.
 

@@ -1,5 +1,3 @@
-Strategies for Incorporating Self-Care into Your Workday
-====================================================================================================================
 
 Incorporating self-care into your daily routine can help you maintain physical and mental health, reduce stress, and increase productivity. However, finding time for self-care can be challenging, particularly when balancing work and personal commitments. In this chapter, we'll explore strategies for incorporating self-care into your workday, including ideas for short, simple self-care activities that can be done at work.
 

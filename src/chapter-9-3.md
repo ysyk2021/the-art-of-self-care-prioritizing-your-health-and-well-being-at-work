@@ -1,5 +1,3 @@
-Continuously Evaluating and Adjusting Self-Care Strategies
-======================================================================================================
 
 Maintaining a self-care practice over time requires ongoing evaluation and adjustment of self-care strategies. In this chapter, we'll explore strategies for continuously evaluating and adjusting your self-care practices to ensure that they remain effective and sustainable.
 

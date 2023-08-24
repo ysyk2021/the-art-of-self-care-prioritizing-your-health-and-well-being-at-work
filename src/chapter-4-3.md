@@ -1,5 +1,3 @@
-Prioritizing Rest and Relaxation Outside of Work Hours
-==================================================================================================================
 
 Incorporating self-care into your daily routine is essential for maintaining overall health and well-being. In this chapter, we'll explore strategies for prioritizing rest and relaxation outside of work hours to help you create an effective self-care routine.
 

@@ -1,5 +1,3 @@
-Chapter 4: Incorporating Self-Care into Your Daily Routine
-==========================================================
 
 Incorporating self-care into your daily routine is essential for maintaining overall health and well-being. In this chapter, we'll explore strategies for incorporating self-care into your workday, taking breaks and managing workload effectively, and prioritizing rest and relaxation outside of work hours.
 

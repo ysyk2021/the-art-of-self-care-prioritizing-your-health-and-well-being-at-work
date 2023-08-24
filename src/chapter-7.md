@@ -1,5 +1,3 @@
-Chapter 7: Supporting Mental Health and Well-Being in the Workplace
-===================================================================
 
 Mental health and well-being are essential for overall health and productivity, yet mental health challenges are prevalent in the workplace. In this chapter, we'll explore strategies for addressing mental health challenges, creating a supportive and inclusive workplace culture, and providing resources and support for mental health and well-being.
 

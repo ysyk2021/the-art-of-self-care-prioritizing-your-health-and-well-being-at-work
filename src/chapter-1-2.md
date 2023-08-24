@@ -1,5 +1,3 @@
-Historical Perspectives on Self-Care
-=====================================================================================
 
 Self-care is not a new concept. In fact, individuals throughout history have recognized the importance of taking care of oneself to maintain physical, mental, and emotional health. In this chapter, we'll explore historical perspectives on self-care and how these perspectives have influenced modern-day self-care practices.
 

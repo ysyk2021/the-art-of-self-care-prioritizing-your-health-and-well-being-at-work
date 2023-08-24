@@ -1,5 +1,3 @@
-Chapter 6: Promoting Physical Health and Wellness in the Workplace
-==================================================================
 
 Physical health and wellness are essential for overall health and well-being. Many people spend a significant amount of time at work, making it an ideal place to promote and prioritize physical wellness. In this chapter, we'll explore strategies for promoting physical wellness at work, navigating ergonomic challenges, and encouraging healthy habits among colleagues.
 

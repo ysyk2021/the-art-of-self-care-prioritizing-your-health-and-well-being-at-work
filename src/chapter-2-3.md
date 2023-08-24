@@ -1,5 +1,3 @@
-Understanding the Impact of Workplace Stress on Physical and Mental Health
-=================================================================================================================================
 
 Workplace stress and burnout can have significant negative impacts on physical and mental health. In this chapter, we'll explore the impact of workplace stress on physical and mental health and provide strategies for recognizing and managing these challenges.
 

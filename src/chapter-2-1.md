@@ -1,5 +1,3 @@
-Recognizing the Signs and Symptoms of Workplace Stress and Burnout
-=========================================================================================================================
 
 Workplace stress and burnout can have serious consequences for employee health, well-being, and job satisfaction. In this chapter, we'll explore the signs and symptoms of workplace stress and burnout and provide strategies for recognizing and managing these challenges.
 

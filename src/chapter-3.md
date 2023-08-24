@@ -1,5 +1,3 @@
-Chapter 3: Developing a Self-Care Plan
-======================================
 
 Developing a self-care plan can help you prioritize your health and well-being and create healthy habits that support your overall happiness and productivity. In this chapter, we'll explore strategies for assessing your self-care needs and preferences, setting realistic self-care goals, and creating a self-care plan that works for you.
 

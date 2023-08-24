@@ -1,5 +1,3 @@
-Encouraging Healthy Habits and Behaviors Among Colleagues
-=============================================================================================================================
 
 Physical health and wellness are essential components of overall well-being, and promoting these aspects in the workplace can have long-lasting benefits for both employers and employees. In this chapter, we'll explore strategies for encouraging healthy habits and behaviors among colleagues to promote physical health and wellness in the workplace.
 

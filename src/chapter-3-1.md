@@ -1,5 +1,3 @@
-Assessing Your Own Self-Care Needs and Preferences
-==========================================================================================
 
 Developing a self-care plan is an essential step in prioritizing your health and well-being at work. In this chapter, we'll explore strategies for assessing your own self-care needs and preferences and developing a personalized self-care plan.
 

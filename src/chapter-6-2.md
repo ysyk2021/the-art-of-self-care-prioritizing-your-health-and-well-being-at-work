@@ -1,5 +1,3 @@
-Navigating ergonomic challenges and creating a comfortable workspace
-========================================================================================================================================
 
 Promoting physical health and wellness in the workplace is essential for maintaining overall well-being. In this chapter, we'll explore strategies for navigating ergonomic challenges and creating a comfortable workspace to help you promote physical health and wellness at work.
 

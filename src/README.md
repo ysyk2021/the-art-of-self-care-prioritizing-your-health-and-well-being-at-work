@@ -1,4 +1,3 @@
-# Introduction
 
 In today's fast-paced work environment, it can be easy to prioritize work over self-care. However, neglecting our physical and mental health can have serious consequences on our overall well-being and job performance. That is why self-care is becoming an increasingly important aspect of maintaining a healthy work-life balance.
 

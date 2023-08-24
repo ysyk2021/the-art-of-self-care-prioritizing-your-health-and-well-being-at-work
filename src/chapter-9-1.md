@@ -1,5 +1,3 @@
-Sustaining a Self-Care Practice Over the Long Term
-==============================================================================================
 
 Maintaining self-care over time can be challenging, particularly in the face of work-related stress and other competing demands on our time and energy. In this chapter, we'll explore strategies for sustaining a self-care practice over the long term, including tips for staying motivated, adjusting your self-care routine as needed, and seeking support when necessary.
 

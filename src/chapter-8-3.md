@@ -1,5 +1,3 @@
-Creating Boundaries and Setting Realistic Expectations
-===================================================================================================
 
 Finding a balance between work and personal life can be challenging, particularly in today's fast-paced, always-on culture. However, creating boundaries and setting realistic expectations can help us achieve a greater sense of balance and well-being. In this chapter, we'll explore strategies for balancing work and personal life, including setting boundaries, managing expectations, and prioritizing self-care.
 

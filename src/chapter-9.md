@@ -1,5 +1,3 @@
-Chapter 9: Maintaining Self-Care Over Time
-==========================================
 
 Maintaining a self-care practice over the long term is essential for achieving lasting health and well-being benefits. In this chapter, we'll explore strategies for sustaining a self-care practice, navigating changes and challenges in the workplace and personal life, and continuously evaluating and adjusting self-care strategies.
 

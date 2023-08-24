@@ -1,5 +1,3 @@
-Creating a self-care plan that works for you
-====================================================================================
 
 Developing a self-care plan is essential for prioritizing your health and well-being at work. In this chapter, we'll explore strategies for creating a self-care plan that works for you.
 

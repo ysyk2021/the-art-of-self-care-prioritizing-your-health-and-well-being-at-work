@@ -1,5 +1,3 @@
-Navigating Changes and Challenges in the Workplace and Personal Life
-================================================================================================================
 
 Maintaining a self-care practice over time can be challenging, particularly when navigating changes in the workplace and personal life. In this chapter, we'll explore strategies for maintaining a self-care practice during times of transition and stress.
 

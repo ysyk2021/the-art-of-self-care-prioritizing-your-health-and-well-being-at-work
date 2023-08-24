@@ -1,5 +1,3 @@
-Chapter 2: Understanding Workplace Stress and Burnout
-=====================================================
 
 Workplace stress and burnout are common challenges that can impact both physical and mental health. Recognizing the signs and symptoms of workplace stress and burnout, identifying common causes, and understanding the impact on our well-being is crucial for prioritizing self-care and improving overall health and productivity. In this chapter, we'll explore strategies for understanding workplace stress and burnout.
 

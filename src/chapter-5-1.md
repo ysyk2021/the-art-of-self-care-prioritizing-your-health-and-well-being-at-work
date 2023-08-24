@@ -1,5 +1,3 @@
-Addressing Stigma Around Self-Care in the Workplace
-=============================================================================================================
 
 Navigating workplace culture around self-care can be challenging, particularly in environments where self-care is not prioritized or may even be stigmatized. In this chapter, we'll explore strategies for addressing stigma around self-care in the workplace and creating a culture that supports self-care practices.
 

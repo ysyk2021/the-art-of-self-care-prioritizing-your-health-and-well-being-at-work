@@ -1,5 +1,3 @@
-Providing resources and support for mental health and well-being
-=====================================================================================================================================
 
 Supporting mental health and well-being in the workplace is critical for maintaining overall well-being. In this chapter, we'll explore strategies for providing resources and support for mental health and well-being to help you create a healthy and sustainable work environment.
 

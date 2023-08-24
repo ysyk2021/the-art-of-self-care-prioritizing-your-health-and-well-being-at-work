@@ -1,5 +1,3 @@
-Setting realistic self-care goals
-=========================================================================
 
 Setting realistic self-care goals is a crucial part of developing a self-care plan that works for you. In this chapter, we'll explore strategies for setting achievable and meaningful self-care goals.
 

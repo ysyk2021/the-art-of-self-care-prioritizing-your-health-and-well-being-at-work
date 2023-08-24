@@ -1,5 +1,3 @@
-Strategies for promoting physical wellness at work
-======================================================================================================================
 
 Promoting physical health and wellness in the workplace is critical for maintaining overall well-being. In this chapter, we'll explore strategies for promoting physical wellness at work to help you stay healthy and feel your best.
 

@@ -1,5 +1,3 @@
-Encouraging others to prioritize their own self-care
-==============================================================================================================
 
 Navigating workplace culture around self-care can be challenging, but it's essential for maintaining overall well-being. In this chapter, we'll explore strategies for navigating workplace culture around self-care and encouraging others to prioritize their own self-care.
 

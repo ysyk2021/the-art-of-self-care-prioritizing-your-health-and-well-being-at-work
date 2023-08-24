@@ -1,5 +1,3 @@
-Chapter 5: Navigating Workplace Culture Around Self-Care
-========================================================
 
 Workplace culture plays a significant role in shaping attitudes and behaviors around self-care. In this chapter, we'll explore strategies for addressing stigma around self-care in the workplace, advocating for self-care as a valuable aspect of workplace culture, and encouraging others to prioritize their own self-care.
 

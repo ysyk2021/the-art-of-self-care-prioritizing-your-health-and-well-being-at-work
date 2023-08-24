@@ -1,5 +1,3 @@
-Advocating for self-care as a valuable aspect of workplace culture
-============================================================================================================================
 
 Navigating workplace culture around self-care can be challenging, but it's essential for promoting a healthy and productive work environment. In this chapter, we'll explore strategies for advocating for self-care as a valuable aspect of workplace culture.
 

@@ -1,5 +1,3 @@
-Identifying Common Causes of Workplace Stress and Burnout
-================================================================================================================
 
 Workplace stress and burnout are prevalent issues that can impact employee health, well-being, and job satisfaction. In this chapter, we'll explore the common causes of workplace stress and burnout and strategies for identifying and managing these challenges.
 

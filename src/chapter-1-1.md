@@ -1,5 +1,3 @@
-Defining Self-Care and Its Importance in the Workplace
-=======================================================================================================
 
 Self-care is the practice of prioritizing one's physical, mental, and emotional health and well-being. In today's fast-paced and stressful work environments, self-care has become increasingly important for maintaining good health and preventing burnout.
 

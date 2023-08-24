@@ -1,5 +1,3 @@
-Addressing Mental Health Challenges in the Workplace
-=========================================================================================================================
 
 Mental health is an essential component of overall health and well-being. However, mental health challenges are prevalent in the workplace and can impact employee productivity, performance, and job satisfaction. In this chapter, we'll explore strategies for addressing mental health challenges in the workplace and supporting mental health and well-being among employees.
 
