@@ -17,3 +17,7 @@ By prioritizing self-care, individuals can achieve a healthier work-life balance
 Remember, taking care of yourself is not selfish; it is essential to achieving success and happiness in all aspects of life. Let "The Art of Self-Care" guide you towards prioritizing your health and well-being at work.
 
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
+
+Please Buy Me a Coffee to support us if you think this book is valuable to you. click this link:
+
+https://www.buymeacoffee.com/minghaizheng
