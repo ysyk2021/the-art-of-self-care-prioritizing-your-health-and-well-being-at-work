@@ -1,5 +1,4 @@
-Chapter 6: Navigating Changes and Challenges in the Workplace and Personal Life
-===============================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore strategies for effectively navigating changes and challenges in both the workplace and personal life while prioritizing your health and well-being. Adapting to these circumstances is crucial for maintaining a sustainable self-care practice.
 

@@ -1,5 +1,4 @@
-Chapter 3: Assessing Your Own Self-Care Needs and Preferences
-=============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the process of assessing your own self-care needs and preferences. By understanding what nourishes and rejuvenates you, you can develop a tailored self-care routine that supports your health and well-being in the workplace.
 

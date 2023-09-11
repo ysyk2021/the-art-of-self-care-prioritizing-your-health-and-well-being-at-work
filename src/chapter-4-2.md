@@ -1,5 +1,4 @@
-Chapter 4: Taking Breaks and Managing Workload Effectively
-==========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of taking breaks and managing your workload effectively to maintain a healthy work-life balance. By implementing strategies for rest and productivity, you can optimize your well-being and enhance your overall performance at work.
 

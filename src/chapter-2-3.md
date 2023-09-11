@@ -1,5 +1,4 @@
-Chapter 2: Understanding the Impact of Workplace Stress on Physical and Mental Health
-=====================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the profound impact that workplace stress can have on both physical and mental health. Recognizing this impact is crucial for prioritizing self-care and taking proactive steps to manage stress effectively.
 

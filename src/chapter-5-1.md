@@ -1,5 +1,4 @@
-Chapter 5: Addressing Stigma Around Self-Care in the Workplace
-==============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of addressing stigma around self-care in the workplace. By challenging misconceptions and promoting a culture that values self-care, individuals can feel empowered to prioritize their health and well-being without fear of judgment or negative consequences.
 

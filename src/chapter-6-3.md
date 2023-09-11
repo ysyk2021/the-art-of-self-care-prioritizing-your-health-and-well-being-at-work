@@ -1,5 +1,4 @@
-Chapter 12: Encouraging Healthy Habits and Behaviors Among Colleagues
-=====================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 *Introduction* In this chapter of "The Art of Self-Care: Prioritizing Your Health and Well-Being at Work," we will explore strategies for encouraging healthy habits and behaviors among colleagues. By fostering a supportive and health-conscious work environment, individuals can inspire their coworkers to prioritize self-care, leading to improved well-being, increased productivity, and a positive work culture.
 

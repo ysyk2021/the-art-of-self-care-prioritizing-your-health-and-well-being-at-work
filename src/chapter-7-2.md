@@ -1,5 +1,4 @@
-Chapter 7: Creating a Supportive and Inclusive Workplace Culture
-================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of creating a supportive and inclusive workplace culture that values the well-being of all employees. By fostering an environment where everyone feels respected, included, and supported, we can enhance overall job satisfaction, productivity, and employee retention.
 

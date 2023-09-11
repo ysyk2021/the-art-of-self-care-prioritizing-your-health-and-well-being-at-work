@@ -1,5 +1,4 @@
-Chapter 7: Navigating Ergonomic Challenges and Creating a Comfortable Workspace
-===============================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 *Introduction* In this chapter of "The Art of Self-Care: Prioritizing Your Health and Well-Being at Work," we will explore the importance of navigating ergonomic challenges and creating a comfortable workspace. Understanding and implementing proper ergonomics in the workplace is essential for promoting physical health, preventing injuries, and enhancing overall well-being.
 

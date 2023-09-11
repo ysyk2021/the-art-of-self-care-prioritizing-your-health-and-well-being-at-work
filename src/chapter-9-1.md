@@ -1,5 +1,4 @@
-Chapter 7: Sustaining a Self-Care Practice Over the Long Term
-=============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore strategies for sustaining a self-care practice over the long term. Consistency and commitment are key to prioritizing your health and well-being at work effectively.
 

@@ -1,5 +1,4 @@
-Chapter 6: Creating a Self-Care Plan That Works for You
-=======================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the process of creating a personalized self-care plan that fits your individual needs and helps you prioritize your health and well-being at work. By developing a tailored self-care plan, you can establish sustainable habits and practices that support your overall well-being.
 

@@ -1,5 +1,4 @@
-Chapter 8: Providing Resources and Support for Mental Health and Well-being
-===========================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of providing resources and support for mental health and well-being in the workplace. By offering accessible resources, promoting awareness, and fostering a supportive environment, we can empower individuals to prioritize their mental health and create a healthier work environment.
 

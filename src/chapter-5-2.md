@@ -1,5 +1,4 @@
-Chapter 10: Advocating for Self-Care as a Valuable Aspect of Workplace Culture
-==============================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of advocating for self-care as a valuable aspect of workplace culture. By highlighting the benefits and integrating self-care practices into the fabric of the organization, we can create a supportive environment that prioritizes well-being and encourages employees to take care of themselves.
 

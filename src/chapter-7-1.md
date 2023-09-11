@@ -1,5 +1,4 @@
-Chapter 6: Addressing Mental Health Challenges in the Workplace
-===============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore strategies for addressing mental health challenges in the workplace. By promoting awareness, fostering support, and implementing proactive measures, we can create an environment that prioritizes mental well-being and supports individuals facing mental health issues.
 

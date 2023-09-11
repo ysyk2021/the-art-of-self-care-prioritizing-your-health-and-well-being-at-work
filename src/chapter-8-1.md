@@ -1,5 +1,4 @@
-Chapter 6: Strategies for Achieving Work-Life Balance
-=====================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore practical strategies for achieving work-life balance, allowing you to prioritize your health and well-being in both personal and professional spheres.
 

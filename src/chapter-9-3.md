@@ -1,5 +1,4 @@
-Chapter 9: Continuously Evaluating and Adjusting Self-Care Strategies
-=====================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of continuously evaluating and adjusting your self-care strategies. As you grow and evolve, your needs and circumstances change, requiring ongoing assessment and adaptation to ensure your self-care practices remain effective.
 

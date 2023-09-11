@@ -1,5 +1,4 @@
-Chapter 5: Prioritizing Rest and Relaxation Outside of Work Hours
-=================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of rest and relaxation outside of work hours and provide practical strategies to prioritize self-care for optimal health and well-being.
 

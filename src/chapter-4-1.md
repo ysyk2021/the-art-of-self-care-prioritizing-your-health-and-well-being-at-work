@@ -1,5 +1,4 @@
-Chapter 10: Strategies for Incorporating Self-Care into Your Workday
-====================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 *Introduction* In this chapter of "The Art of Self-Care: Prioritizing Your Health and Well-Being at Work," we will explore strategies for incorporating self-care into your workday. By implementing effective self-care practices, individuals can enhance their overall well-being, reduce stress levels, improve productivity, and achieve a healthier work-life balance.
 

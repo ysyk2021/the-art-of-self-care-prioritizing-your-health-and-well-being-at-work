@@ -1,5 +1,4 @@
-Chapter 8: Navigating the Challenges of Personal and Professional Responsibilities
-==================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore strategies for effectively navigating the challenges that arise from balancing personal and professional responsibilities. Finding harmony between these two aspects is crucial for prioritizing your health and well-being at work.
 

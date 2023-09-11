@@ -1,5 +1,4 @@
-Chapter 8: Encouraging Others to Prioritize Their Own Self-Care
-===============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will discuss the importance of encouraging others to prioritize their own self-care. By promoting a culture of well-being and supporting those around us, we can foster healthier work environments and enhance overall personal and professional satisfaction.
 

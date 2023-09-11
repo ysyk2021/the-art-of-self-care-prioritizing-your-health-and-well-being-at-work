@@ -1,5 +1,4 @@
-Chapter 6: Recognizing the Signs and Symptoms of Workplace Stress and Burnout
-=============================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the signs and symptoms of workplace stress and burnout. It is crucial to recognize these indicators to take proactive steps towards managing and preventing burnout effectively.
 
